@@ -1,6 +1,5 @@
 # Morgan Austad
-
-📍 668 S 300 W, Orem, UT 84058  
+  
 📞 (435) 851-2333  
 📧 morganaustad@gmail.com  
 
